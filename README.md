@@ -1,0 +1,5 @@
+- 👋 Olá, Sou @fabianavilela120780
+- 👀 Tenho interesse em aprender tecnologia
+- 🌱 Atualmente sou uma estudante da @alura
+- 💞️ Colaboro com as minhas experiências.
+- 📫 https://www.linkedin.com/in/fabiana-vilela-7aab6722a/ 
